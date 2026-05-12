@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS panel with CorelDRAW for macOS elite Panel: export to SVG & content-aware fill. Featuring export to SVG and content-aware fill, it's the best
 
 
 
